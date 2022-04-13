@@ -1,1 +1,1 @@
-# Apna-College
+# Apna College
